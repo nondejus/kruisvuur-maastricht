@@ -1,2 +1,0 @@
-# kruisvuur-maastricht
-brandpunt daalhof
